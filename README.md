@@ -6,3 +6,13 @@ To do later
 - take out recycling
 - practice IC
 - finish PD work
+
+
+Guests for SuperBowl Party
+- Kennedy
+- Julia
+- James
+- Patrick
+- Keith
+- Ashley
+- Eric
