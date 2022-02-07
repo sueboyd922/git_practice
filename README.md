@@ -6,3 +6,9 @@ To do later
 - take out recycling
 - practice IC
 - finish PD work
+
+Weddings this year
+- Feb : Patrick & Julia
+- March : Katherine & Colin
+- May : Alana & Ryan
+- June : Keely & Jonathan
